@@ -1,1 +1,0 @@
-# afit-cad-registration
